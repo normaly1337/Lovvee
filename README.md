@@ -1,5 +1,5 @@
 # **Author**
 
-> Lovee 👑
+> Eska 👑
 
-> [Soon 👑](https://discord.gg/)
+> [Back 2024 👑](https://discord.gg/)
