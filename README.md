@@ -2,4 +2,4 @@
 
 > Lovee 👑
 
-> [Y2K 👑](https://discord.gg/y2ksb)
+> [Soon 👑](https://discord.gg/)
