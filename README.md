@@ -1,5 +1,5 @@
 # **Author**
 
-> Eska 👑
+> Normaly 👑
 
-> [Back 2024 👑](https://discord.gg/)
+> [VBH 👑](https://discord.gg/vbh)
